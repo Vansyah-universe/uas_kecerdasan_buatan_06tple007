@@ -1,0 +1,1 @@
+# uas_kecerdasan_buatan_06tple007
